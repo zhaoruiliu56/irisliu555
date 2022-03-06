@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @irisliu555
+- 👋 Hi, I’m @irisliu555(zhaorui liu)
 - 👀 I’m interested in singing and music.
 - 🌱 I’m currently learning in university of glasgow.
 - 💞️ I’m seeking jobs on summer internship and graduate programme in engineering field.

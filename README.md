@@ -1,7 +1,5 @@
 - 👋 Hi, I’m @zhaoruiliu56(zhaorui liu)
 - 👀 I’m interested in singing and music.
-- 🌱 I’m currently learning in university of glasgow.
-- 💞️ I’m seeking jobs on summer internship and graduate programme in engineering field.
 - 📫 How to reach me 📧:liuzhaorui056@gmail.com
 
 <!---
